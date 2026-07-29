@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-DURR830402HMCRVG00
+DURR830402HMCRVG00
